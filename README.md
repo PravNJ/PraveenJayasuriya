@@ -1,2 +1,2 @@
-# PraveenJayasuriya
+# Praveen Jayasuriya
 Praveen Jayasuriya website
